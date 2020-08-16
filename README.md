@@ -2,7 +2,7 @@
 
 After two years of attending UNL 📚 this is what I have learned:
 
-If you're an undergraduate interested in Actuarial Science, UNL is a great place to go 💯. Sadly, if you're a masters student, UNL may not be a good fit for you 😞.
+If you're an undergraduate interested in Actuarial Science, UNL is a great place to go 💯. Sadly, if you're a masters student, UNL may not be a good fit for you 😞
 
 First, there is no getting around classes 👨‍🏫 with these two professors:
 
